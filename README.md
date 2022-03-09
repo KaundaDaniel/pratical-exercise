@@ -1,1 +1,0 @@
-# pratical-exercise
